@@ -8,7 +8,6 @@ the world of coding or a seasoned developer looking for a peaceful coding atmosp
 
 🔔 Don’t forget to hit like, subscribe, and turn on notifications to stay updated with more coding tutorials and ASMR programming sessions!
 
-📌 If you have any questions or suggestions, drop them in the comments below. I love hearing from you!
 
 YouTube: 
 
